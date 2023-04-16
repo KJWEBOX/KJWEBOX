@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @KJWEBOX
 - 🌱 Passion in Coding and Hacking 🔥☠️
 - ⚠️ Be positive
-- 📫 reach me kjwebox@gmail.com
+- 📫 Reach me kjwebox@gmail.com
